@@ -1,3 +1,5 @@
+<img width="2940" height="1846" alt="截圖 2026-04-18 凌晨1 26 37" src="https://github.com/user-attachments/assets/c13bacbf-2ddf-4397-adc7-79b2edfe2057" />
+
 ------------------------------------------------------------------------------
 ＃中文版
 
